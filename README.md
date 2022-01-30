@@ -2,4 +2,4 @@
 
 Podcast: https://anchor.fm/bitcoinvedigerseyler<br>
 Twitter: https://twitter.com/BitcoinVeDiger<br>
-Mail: bitcoinvedigerseyler@gmail.com
+Email: bitcoinvedigerseyler@gmail.com
